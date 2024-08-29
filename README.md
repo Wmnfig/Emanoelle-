@@ -9,4 +9,4 @@ estou me desenvolvendo na linguagem JavaScript
 
 emanoellelourencofigueira9@gmail.com 
 
-![ ](https://tenor.com/pt-BR/view/kisses-gif-23353976)
+![ ](https://media1.tenor.com/m/FDk5XJ4zSZQAAAAC/kawaii-love.gif)
